@@ -16,5 +16,5 @@
 
 
 #### 5 - *Harry Potter and the Fiya-Bird Squad 
-#### 6 - *Harry Potter and the Half-Blood Prince*
+#### 6 - *Harry Potter and the divided in 2-Blood Prince*
 #### 7 - *Harry Potter and the Sussy Symbols
